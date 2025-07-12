@@ -3,7 +3,7 @@ The official source of the latest versions.
 
 # Download
 
-[Click here](https://i8.ae/MEsKK)
+[Click here](https://i8.ae/ntIdK)
 
 # Support
 The answer to any question can be found in [Discord Community](https://discord.gg/shika).
